@@ -1,1 +1,1 @@
-# Quick-Commerce-vs.-Value-E-Commerce-Unit-Economics-Analyzer-
+# Quick-Commerce-vs.-Value-E-Commerce-Unit-Economics-Analyzer
